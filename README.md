@@ -7,25 +7,25 @@
 
 * Solved half of Forensics, over half of Crypto and Recon, 200 points of Web and all of trivia.
 
-![alt tag](http://i.imgur.com/wS0U69j.png)
+![alt tag](http://i.imgur.com/PLakZIs.png)
 ***
 ***
 ***
-![alt tag](http://i.imgur.com/pqe4WVk.png)
+![alt tag](http://i.imgur.com/PlkxiNm.png)
 ***
 ***
 ***
-![alt tag](http://i.imgur.com/M9YmPQ3.png)
+![alt tag](http://i.imgur.com/0yhimWa.png)
 ***
 ***
 ***
-![alt tag](http://i.imgur.com/csKOmmC.png)
+![alt tag](http://i.imgur.com/sxjn3cK.png)
 ***
 ***
 ***
-![alt tag](http://i.imgur.com/COUlbuv.png)
+![alt tag](http://i.imgur.com/W8QyPud.png)
 ***
 ***
 ***
-![alt tag](http://i.imgur.com/PLGkaPj.png)
+![alt tag](http://i.imgur.com/9q7DCzp.png)
 
